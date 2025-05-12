@@ -1,3 +1,3 @@
 # me when yaois
 
-![kkir](https://imgur.com/a/oj868bG.gif)
+![kkir](https://i.imgur.com/VF8viD2.png)
